@@ -1,4 +1,4 @@
-#  
+#  spin a soccer card Scripts hidden offers the most advanced spin a soccer card Script, with teleport and auto-upgrade. Perfect for dominating any
 
 
 
